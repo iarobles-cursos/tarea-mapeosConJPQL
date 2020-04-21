@@ -39,4 +39,4 @@ Si lo prefiere, también puede revisar las instrucciones en el siguiente video:
 
 ## Instrucciones (Video)
 
-Si lo prefiere, también puede revisar las instrucciones en el siguiente video:
+[https://youtu.be/Kx6T10OIHZ4](https://youtu.be/Kx6T10OIHZ4)
